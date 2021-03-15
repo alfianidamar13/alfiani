@@ -1,2 +1,2 @@
 # alfiani
-aku imut
+Assalamualaikum
